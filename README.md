@@ -1,5 +1,5 @@
 # 💫 About Me:
-my name is Kunal Singh Tanwar<br>I had completed my bachelors in BBA(CA) from Pune University<br>I'm currently pursuing my MCA form K.R.Mangalam university <br> <br>
+My name is Kunal Singh Tanwar<br>I had completed my Bachelors in BBA(CA) from Pune University<br>I'm currently pursuing my MCA form K.R.MANGLAM university <br> <br>
 
 
 ## 🌐 Socials:
